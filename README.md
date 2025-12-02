@@ -1,4 +1,4 @@
-## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Raleway&weight=700&size=24&duration=1&pause=1000&color=F7657D&background=F7657D00&center=true&vCenter=true&multiline=true&width=435&lines=%E2%8B%86.%F0%90%99%9A%CB%9A%E0%BF%94+hi+everyone!+i'm+Vit%C3%B3ria+%F0%9D%9C%97%F0%9D%9C%9A%CB%9A%E2%8B%86)](https://git.io/typing-svg) <br>
+## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Raleway&weight=700&size=24&duration=1&pause=1000&color=F7657D&background=F7657D00&center=true&vCenter=true&multiline=true&width=435&lines=%E2%8B%86.%F0%90%99%9A%CB%9A%E0%BF%94+i'm+Vit%C3%B3ria+%F0%9D%9C%97%F0%9D%9C%9A%CB%9A%E2%8B%86)](https://git.io/typing-svg) <br>
 🧠𖹭 ιᥒformᥲtιoᥒᥲᥣ sყstᥱms stυdᥱᥒt <br> 
 👩‍💻𖹭 froᥒt-ᥱᥒd dᥱvᥱᥣoρmᥱᥒt, υx/υι, wᥱb dᥱvᥱᥣoρmᥱᥒt <br>
 🦢𖹭 ρᥲssιoᥒᥲtᥱ ᥲᥒd ᥴυrιoυs to ᥣᥱᥲrᥒ morᥱ ᥲᥒd morᥱ <br>
