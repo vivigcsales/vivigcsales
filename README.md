@@ -8,7 +8,7 @@
 🧠 I L O V E pop culture, I'm passionate about superheroes, comics and the geek universe <br>
 ☝🏼 I'm also a proud cinephile who feels like a renowed critic on letterboxd <br>
 👩‍💻 I like to study network architectures, although it is not something I want to pursue professionally <br>
-🦢 One of my biggest passions came to my life when I was only 4yo: ballet ♡ <br>
+🦢 Ballet, one of my biggest passions came to my life when I was only 4yo ♡ <br>
 <br clear="right" />
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ . ݁₊ ⊹ . ݁  ݁ ⟡ ݁ . ⊹ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ . ݁₊ ⊹ . ݁ ⟡ ݁ . 
 
